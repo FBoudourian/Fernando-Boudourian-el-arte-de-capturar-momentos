@@ -1,0 +1,2 @@
+# Fernando-Boudourian-el-arte-de-capturar-momentos
+La fotografía, como programar, requiere atención al detalle, paciencia y precisión. Cada encuadre es como una línea de código: debe ser claro y efectivo para lograr el resultado esperado. La luz y los elementos naturales son variables que cambian constantemente, y adaptarse a ellas es clave. No se trata solo de herramientas, sino de cómo interpretamos lo que vemos y convertimos lo simple en algo extraordinario.
